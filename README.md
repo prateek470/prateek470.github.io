@@ -1,4 +1,4 @@
-# Prateek Gupta
+# prateek470.github.io
 Masters Student 
 Texas A&M University
 
